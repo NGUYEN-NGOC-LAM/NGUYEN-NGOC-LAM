@@ -1,0 +1,7 @@
+- 👋 Xin chào, tôi là @NGUYEN-NGOC-LAM
+- 👀 Tôi quan tâm đến ...PHÁT TRIỂN NỀN TẢNG YOUTUBE VÀ CÔNG NGHỆ API
+- 🌱 Hiện tại tôi đang việc tại công ty tài chính HDSAISON, và phát triển nội dung trên youtube
+- 💞️ Tôi đang tìm kiếm sự hợp tác về đội nhóm phát triển xây dưng đa nền tảng để cung cấp tài nguyên giữ liệu API
+- 📫 Cách liên lạc với tôi nguyenngoclam@gmail.com. SDT 84+869130932
+- 😄 Đại từ: làm việc từ tâm
+- ⚡ Sự thật thú vị: .vui vẻ, hay overthing
